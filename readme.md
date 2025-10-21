@@ -5,8 +5,6 @@
 **Target Audience:** Prospective students, parents, healthcare professionals, community members
 **Primary Goal:** Drive applications, build brand awareness, and establish trust
 **Posting Time Recommendations:**
-- **Primary:** 7:00 AM - 9:00 AM (Morning commute)
-- **Secondary:** 12:00 PM - 2:00 PM (Lunch break)
 - **Tertiary:** 6:00 PM - 8:00 PM (Evening relaxation)
 
 ---
@@ -20,17 +18,13 @@ Welcome to Nexus College of Nursing Sciences, Katsina!
 
 We're excited to introduce you to a world of excellence in nursing education right here in Katsina State. Our mission? To train skilled, ethical, and compassionate nurses who will make a real difference in healthcare across Nigeria and beyond.
 
-Over the next 30 days, we'll take you on a journey through our modern facilities, introduce you to our programs, and show you why Nexus CNS is the right choice for your nursing career.
-
-Ready to transform lives through nursing? Let's begin this journey together!
+Feel free to visit our website https://nexuscns.edu.ng/ to explore our programs.
 
 📍 Location: 30 Yandurumma Mani Road, Katsina
 📞 Call: 0803 653 3684
 
+Comment with your dream nursing specialty (e.g: pediatrics, emergency care, etc.)
 #NexusCNS #NursingEducation #KatsinaState #NorthernNigeria #BeTheChange #HealthcareHeroes
-
-### Engagement Strategy:
-Ask followers to comment with their dream nursing specialty (pediatrics, emergency care, etc.)
 
 ---
 
@@ -51,12 +45,9 @@ Here are 5 powerful reasons:
 
 At Nexus College of Nursing Sciences, we prepare you for all these opportunities and more.
 
-Which of these reasons resonates most with you?
+Which of these reasons matters most with you?
 
 #NursingCareer #JobSecurity #HealthcareProfessionals #KatsinaNurses #CareerOpportunities
-
-### Engagement Strategy:
-Poll-style question - which benefit matters most to you?
 
 ---
 
@@ -65,7 +56,7 @@ Poll-style question - which benefit matters most to you?
 **Theme:** Infrastructure Highlight
 
 ### Caption:
-WELCOME TO OUR STATE-OF-THE-ART PRACTICAL LABORATORY! 🔬
+EXPLORE OUR STATE-OF-THE-ART PRACTICAL LABORATORY! 🔬
 
 This is where theory meets practice. Our fully equipped laboratory provides hands-on training with:
 
@@ -80,13 +71,9 @@ Because at Nexus CNS, we believe in learning by doing.
 
 Ready to get your hands on real skills?
 
-📞 Contact us: 0803 653 3684
 🌐 www.nexuscns.edu.ng
 
 #PracticalTraining #NursingLab #HandsOnLearning #ModernFacilities #NexusCNS #KatsinaEducation
-
-### Engagement Strategy:
-Ask: "What nursing skill are you most excited to practice?"
 
 ---
 
@@ -116,11 +103,6 @@ Apply now: https://portal.nexuscns.edu.ng/
 
 #StudentSuccess #NursingStudents #TransformLives #NexusCNS #KatsinaState #QualityEducation
 
-### Engagement Strategy:
-Encourage prospective students to ask current students questions in comments
-
----
-
 ## DAY 5: PROGRAM OVERVIEW - ND NURSING SCIENCES
 **Post Type:** Informational Carousel / Multi-Image Post
 **Theme:** Academic Program Spotlight
@@ -149,7 +131,6 @@ Why choose our ND program?
 
 START YOUR NURSING JOURNEY WITH SOLID FOUNDATION!
 
-📞 Inquiries: 0901 053 3029
 💻 Apply: www.nexuscns.edu.ng
 
 #NDNursing #NursingProgram #HigherEducation #NexusCNS #KatsinaEducation #NorthernNigeria
@@ -212,8 +193,6 @@ What are you waiting for?
 
 Apply now and start your journey this session!
 
-📞 Call/WhatsApp: 0803 653 3684
-
 #MondayMotivation #NursingDreams #StartToday #YourFutureAwaits #NexusCNS #InvestInYourself
 
 ### Engagement Strategy:
@@ -252,7 +231,6 @@ See? You might already qualify!
 
 Don't let assumptions stop you. CHECK YOUR ELIGIBILITY TODAY!
 
-📞 Call for clarification: 0703 209 0077
 💻 Apply: www.nexuscns.edu.ng
 
 #AdmissionRequirements #JambScore #OLevel #ApplyNow #NexusCNS #QualityEducation
@@ -289,13 +267,9 @@ All under expert supervision in a safe, controlled environment!
 
 EXPERIENCE MATTERS. And we give you plenty of it!
 
-Book a campus tour: 0901 053 3029
 Apply online: www.nexuscns.edu.ng
 
 #PracticalLearning #NursingSkills #ClinicalTraining #ModernEducation #NexusCNS #KatsinaHealth
-
-### Engagement Strategy:
-Virtual campus tour request - "Comment TOUR if you'd like to see more of our facilities!"
 
 ---
 
@@ -323,7 +297,6 @@ Not your gender.
 
 Ready to join a profession that values talent over stereotypes?
 
-📞 Call us: 0803 653 3684
 🌐 Apply: www.nexuscns.edu.ng
 
 #NursingIsForEveryone #MaleNurses #BreakingStereotypes #GenderEquality #NexusCNS #HealthcareCareers
@@ -356,7 +329,7 @@ Your financial situation shouldn't stop your dreams.
 Let's work together to find a solution that fits YOUR budget!
 
 For detailed fee structure and payment guidance:
-📞 Call: 0901 053 3029
+
 📧 Email: info@nexuscns.edu.ng
 
 INVEST IN YOURSELF. We'll help you make it work.
@@ -397,15 +370,11 @@ Focus on your studies, not on your commute.
 Coming from outside Katsina? Don't let distance stop your dreams!
 
 For hostel inquiries and booking:
-📞 0803 653 3684
+ 
 🌐 www.nexuscns.edu.ng
 
 #CampusLife #StudentHostel #OnCampusLiving #SafeEnvironment #NexusCNS #KatsinaAccommodation
 
-### Engagement Strategy:
-Ask out-of-state students to comment their location - build sense of diverse community
-
----
 
 ## DAY 13: CAREER SPOTLIGHT - PEDIATRIC NURSING
 **Post Type:** Engaging Visual with Icons
@@ -434,7 +403,7 @@ Your Nexus CNS education gives you the foundation to specialize in this rewardin
 Have a heart for children? This could be YOUR calling.
 
 Start your journey with us!
-📞 0901 053 3029
+
 💻 www.nexuscns.edu.ng
 
 #PediatricNursing #ChildrensHealth #NursingSpecialty #CareerPaths #NexusCNS #HealthcareCareer
@@ -476,7 +445,6 @@ That's it. One small step toward YOUR nursing future.
 
 The clock keeps ticking. So should you. Keep going! 💪
 
-📞 Need help? Call: 0803 653 3684
 
 #KeepGoing #NursingDreams #TakeAction #YouCanDoIt #NexusCNS #FutureNurse #Motivation
 
@@ -515,12 +483,9 @@ Because at Nexus CNS, your success is supported by RESOURCES, not just rhetoric.
 Ready to access world-class learning resources?
 
 Apply today: www.nexuscns.edu.ng
-📞 0901 053 3029
+
 
 #LibraryLife #DigitalLearning #CBT #StudyResources #NexusCNS #AcademicExcellence #KatsinaEducation
-
-### Engagement Strategy:
-Ask: "Are you a library person or a digital learner?" to understand preferences
 
 ---
 
@@ -555,7 +520,6 @@ You don't have to be a genius. You just have to be WILLING.
 
 Ready to surprise yourself with what you can achieve?
 
-📞 Talk to us: 0803 653 3684
 🌐 Apply: www.nexuscns.edu.ng
 
 #YouCanDoThis #NursingSc hool #OvercomingDoubt #BelieveInYourself #NexusCNS #FutureNurse
@@ -589,7 +553,7 @@ Living off-campus? No problem. We've got you covered.
 Your education is important enough. Let us handle the transportation.
 
 For route details and schedules:
-📞 0901 053 3029
+
 📧 info@nexuscns.edu.ng
 
 #SchoolTransport #StudentLife #SafeTravel #Convenience #NexusCNS #KatsinaState
@@ -634,7 +598,6 @@ Don't stop at ND - maximize your potential with HND!
 
 Your career growth matters to us.
 
-📞 HND Inquiries: 0703 209 0077
 💻 Apply: www.nexuscns.edu.ng
 
 #HNDNursing #CareerAdvancement #HigherEducation #ProfessionalGrowth #NexusCNS #NursingLeaders
@@ -676,7 +639,7 @@ We're READY for the future. Are you?
 
 Join a digitally-equipped institution where learning knows no boundaries!
 
-📞 0803 653 3684
+ 
 🌐 www.nexuscns.edu.ng
 
 #DigitalLearning #InternetAccess #ModernEducation #TechEnabled #NexusCNS #21stCenturySkills
@@ -716,7 +679,7 @@ Or still wondering "what if"?
 
 The choice is yours. Choose wisely.
 
-📞 0901 053 3029
+
 💻 www.nexuscns.edu.ng
 
 #SuccessStory #GraduateTestimonial #AlumniSuccess #NursingCareer #NexusCNS #FutureIsBright
@@ -757,7 +720,7 @@ And Nexus CNS is where that purpose becomes a profession.
 
 Ready to find yourself in the service of others?
 
-📞 0803 653 3684
+ 
 🌐 Start here: www.nexuscns.edu.ng
 
 #SundayMotivation #ServiceToOthers #NursingCalling #Purpose #NexusCNS #MakeADifference
@@ -802,7 +765,6 @@ And we refuse to compromise on either.
 
 Learn from the best. Become the best.
 
-📞 0703 209 0077
 💻 www.nexuscns.edu.ng
 
 #ExpertFaculty #QualityEducation #ExperiencedTeachers #NursingEducation #NexusCNS #LearnFromTheBest
@@ -853,7 +815,6 @@ PROCRASTINATION IS THE THIEF OF OPPORTUNITY!
 
 Don't wait. APPLY TODAY!
 
-📞 Need help? Call NOW: 0803 653 3684
 
 #ApplyNow #DontWait #SecureYourFuture #AdmissionsOpen #NexusCNS #TakeActionToday #FOMO
 
@@ -898,7 +859,6 @@ Your Nexus CNS education prepares you for this vital role!
 
 Want to serve your community directly? This path is MADE for you!
 
-📞 0901 053 3029
 💻 www.nexuscns.edu.ng
 
 #CommunityHealth #PublicHealth #NursingCareers #RuralHealthcare #NexusCNS #ServingCommunities
@@ -942,7 +902,7 @@ When you join Nexus CNS, you're not just getting an education - you're joining a
 
 Ready to be part of something bigger?
 
-📞 0803 653 3684
+ 
 🌐 www.nexuscns.edu.ng
 
 #CommunityService #HealthcareAccess #CollegeClinic #ServingKatsina #NexusCNS #SocialImpact
@@ -987,7 +947,6 @@ Whether you choose ND, HND, or Certificate programs, Nexus CNS has a path for YO
 
 Your journey. Your pace. Your success.
 
-📞 Certificate Program Inquiries: 0901 053 3029
 💻 www.nexuscns.edu.ng
 
 #CertificatePrograms #ShortCourses #FlexibleLearning #SkillDevelopment #NexusCNS #ContinuingEducation
@@ -1076,7 +1035,7 @@ That's why we're committed to EXCELLENCE, not just enrollment.
 
 Ready to join our success story?
 
-📞 0803 653 3684
+ 
 💻 www.nexuscns.edu.ng
 
 #GraduateSuccess #EmploymentRate #CareerReady #NursingJobs #NexusCNS #ResultsMatter
@@ -1093,15 +1052,13 @@ Ready to join our success story?
 ### Caption:
 THIS IS YOUR MOMENT! ⚡
 
-For 29 days, we've shown you:
+You've seen:
 ✅ Our modern facilities
 ✅ Our quality programs
 ✅ Our expert faculty
 ✅ Our student success stories
 ✅ Our community impact
 ✅ Our affordable options
-
-You've seen it ALL.
 
 Now the question is simple:
 
@@ -1130,8 +1087,6 @@ No more "I'll do it later."
 
 **DO IT NOW!** ⏰
 
-📞 Need help? Call IMMEDIATELY: 0803 653 3684
-
 Your future is calling. Will you answer?
 
 #ApplyNow #TakeAction #YourFutureStartsToday #NoMoreExcuses #NexusCNS #LastCall #DoItNow
@@ -1146,25 +1101,15 @@ Maximum urgency - "Reply DONE when you've applied!" - Create public accountabili
 **Theme:** Gratitude & Ongoing Relationship
 
 ### Caption:
-WE'VE REACHED DAY 30! 🎉
 
-Thank you for joining us on this 30-day journey!
-
-Over the past month, we've shared:
-💙 Our facilities and programs
-💙 Our values and mission
-💙 Our students' success stories
-💙 The nursing career opportunities
-💙 Why Nexus CNS is the right choice
-
-**BUT THIS ISN'T THE END - IT'S JUST THE BEGINNING!**
+Thank you for joining us! 🎉
 
 Whether you've already applied (congratulations! 🎊) or you're still considering, we're here for YOU.
 
 **WHAT'S NEXT?**
 
 👉 **APPLIED?** Watch for admission updates
-👉 **STILL DECIDING?** Call us for one-on-one guidance
+👉 **STILL DECIDING?** Contact us for guidance
 👉 **HAVE QUESTIONS?** We're always here to help
 👉 **WANT TO VISIT?** Campus tours available!
 
@@ -1181,9 +1126,6 @@ And we can't wait to be part of it! 💙
 See you on campus! 🎓
 
 #ThankYou #NexusCNS #FutureNurses #HealthcareHeroes #JoinTheFamily #KatsinaEducation #NursingExcellence
-
-### Engagement Strategy:
-"What was your favorite part of this 30-day series? Comment below!" - Get feedback for future content
 
 ---
 
@@ -1210,8 +1152,6 @@ See you on campus! 🎓
 - Action: #ApplyNow #TakeAction #JoinUs
 
 **Optimal Posting Times:**
-- Morning: 7:00-9:00 AM (Commute time)
-- Midday: 12:00-2:00 PM (Lunch break)
 - Evening: 6:00-8:00 PM (After work/school)
 
 **Engagement Tactics:**
