@@ -21,7 +21,7 @@ We're excited to introduce you to a world of excellence in nursing education rig
 Feel free to visit our website https://nexuscns.edu.ng/ to explore our programs.
 
 📍 Location: 30 Yandurumma Mani Road, Katsina
-📞 Call: 0803 653 3684
+📞 Call: +234 703 209 0077
 
 Comment with your dream nursing specialty (e.g: pediatrics, emergency care, etc.)
 #NexusCNS #NursingEducation #KatsinaState #NorthernNigeria #BeTheChange #HealthcareHeroes
@@ -117,6 +117,7 @@ What you'll study:
 📚 Community Health Nursing
 📚 Pharmacology
 📚 Patient Care & Management
+Midwefferey
 
 DURATION: 2 Years
 FORMAT: Full-time, On-campus
@@ -160,7 +161,7 @@ Nexus College of Nursing Sciences exists to train the healthcare heroes our comm
 Will you answer the call?
 
 🏥 Be the change Katsina needs
-📲 Start your application today: https://portal.nexuscns.edu.ng/
+📲 Start your application today: https://nexuscns.edu.ng/
 
 #HealthcareHeroes #NursingShortage #BeTheChange #CommunityService #NexusCNS #KatsinaHealth
 
@@ -1115,7 +1116,7 @@ Whether you've already applied (congratulations! 🎊) or you're still consideri
 
 Stay connected with us:
 📱 Follow this page for updates
-📞 Call anytime: 0803 653 3684
+📞 Call anytime: +234 703 209 0077
 🌐 Visit: www.nexuscns.edu.ng
 📧 Email: info@nexuscns.edu.ng
 
